@@ -9,5 +9,5 @@
 -  Ask me about what my current projects are.
 -  How to reach me: email or social media!
 -  Pronouns: she/her/purrrr
--  Fun fact: I am a viynl collector and I love ostriches <3
+-  Fun fact: I am a vinyl collector and I love ostriches <3
 
